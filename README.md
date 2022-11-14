@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @thoraxit
+- 👀 I’m interested in IT
+- 📫 Reach me thoraxit@gmail.com
